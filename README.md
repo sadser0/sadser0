@@ -1,5 +1,5 @@
-## most likely afk feel free to whisp ! 
-
+## most likely afk feel free to whisp 
+online most days with oomfs interact if you recognise a pony! 
 <!--
 **sadser0/sadser0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+![](https://hit.yhype.me/github/profile?account_id=187821337)
