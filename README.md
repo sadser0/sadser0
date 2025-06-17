@@ -1,4 +1,4 @@
-## Hi there 👋
+## most likely afk feel free to whisp ! 
 
 <!--
 **sadser0/sadser0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
