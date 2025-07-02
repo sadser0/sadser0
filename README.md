@@ -13,5 +13,5 @@
 
 ! DISCLAIMER: the polycule is a bit A /J it is not SERIOUS ! 
 
- >https://rentry.co/sadsero | https://sadsero.atabook.org/ | https://seroyay.straw.page/ 
+ <a href="https://rentry.co/sadsero"</a>
 </div>
