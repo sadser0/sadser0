@@ -1,8 +1,8 @@
 <div align="center"> 
 
                                                             
-*ੈ✩‧₊˚<img width="30%" src="https://i.postimg.cc/SsFBSc5f/IMG-4194.png">*ੈ✩‧₊˚
-hello
+*ੈ✩‧₊˚<img width="30%" src="https://i.postimg.cc/SsFBSc5f/IMG-4194.png">hello*ੈ✩‧₊˚
+
  <br>
  
  ## ✧ most likely afk feel free to whisp ✧
