@@ -1,5 +1,5 @@
  ## most likely afk feel free to whisp 
-20/UK <br>
+<p align="center"> 20/UK <br>
 online most days with oomfs interact if you recognise a pony! 
 <br>
 
