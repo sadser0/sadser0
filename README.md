@@ -9,4 +9,4 @@
 <br>
 <p align="center"> <a href="[LINK FOR WHATEVER YOU WANT HERE]"><img width="50%" src="https://i.postimg.cc/ZRGhsBkt/IMG-2186.jpg">
 
-<p align="center">https://rentry.co/sadsero | https://sadsero.atabook.org/ | https://seroyay.straw.page/
+<p align="center" >https://rentry.co/sadsero | https://sadsero.atabook.org/ | https://seroyay.straw.page/
