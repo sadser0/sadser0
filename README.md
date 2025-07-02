@@ -13,5 +13,5 @@
 
 ! DISCLAIMER: the polycule is a bit A /J it is not SERIOUS ! 
 
- <a href="https://rentry.co/sadsero">Atabook</a>
+ <a href="https://rentry.co/sadsero">rentry</a>
 </div>
