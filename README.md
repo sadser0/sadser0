@@ -1,11 +1,8 @@
-## most likely afk feel free to whisp 
-20/UK
+. ## most likely afk feel free to whisp 
+20/UK <br>
 online most days with oomfs interact if you recognise a pony! 
-
-![](https://hit.yhype.me/github/profile?account_id=187821337)
 <br>
 
-
-
-
+ ![](https://komarev.com/ghpvc/?username=sadser0&label=visitors+++&color=2d2f59)
+<br>
 
