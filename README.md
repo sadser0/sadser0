@@ -3,7 +3,7 @@
                                                             
 <img width="30%" src="https://i.postimg.cc/SsFBSc5f/IMG-4194.png"> 
 
-*ੈ✩‧₊˚*All you have to do is squeeze.* *ੈ✩‧₊˚
+*ੈ✩‧₊˚ *All you have to do is squeeze.* *ੈ✩‧₊˚
 
  <br>
  
