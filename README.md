@@ -9,4 +9,4 @@ online most days with oomfs interact if you recognise a pony!
 <br>
 <a href="[LINK FOR WHATEVER YOU WANT HERE]"><img width="50%" src="https://i.postimg.cc/ZRGhsBkt/IMG-2186.jpg">
 
-https://rentry.co/sadsero https://sadsero.atabook.org/ https://seroyay.straw.page/
+https://rentry.co/sadsero     https://sadsero.atabook.org/     https://seroyay.straw.page/
