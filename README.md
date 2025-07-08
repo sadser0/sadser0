@@ -3,7 +3,7 @@
                                                             
 <img width="30%" src="https://i.postimg.cc/SsFBSc5f/IMG-4194.png"> 
 
-*ੈ✩‧₊˚*That's why I...I have to kill you..**ੈ✩‧₊˚
+*ੈ✩‧₊˚ *That's why I...I have to kill you..* *ੈ✩‧₊˚
 
  <br>
  
