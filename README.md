@@ -3,7 +3,7 @@
                                                             
 <img width="30%" src="https://i.postimg.cc/SsFBSc5f/IMG-4194.png"> 
 
-*ੈ✩‧₊˚ *we all think that we are nobody but everybody is somebody elses somebody*  *ੈ✩‧₊˚
+*ੈ✩‧₊˚ *kilobytes, baby, must be in the thousands*  *ੈ✩‧₊˚
 
  <br>
  
