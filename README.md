@@ -1,9 +1,9 @@
 <div align="center"> 
 
-                                                            
+*ੈ✩‧₊˚ *kilobytes, baby, must be in the thousands*  *ੈ✩‧₊˚                                                            
 <img width="30%" src="https://i.postimg.cc/SsFBSc5f/IMG-4194.png"> 
 
-*ੈ✩‧₊˚ *kilobytes, baby, must be in the thousands*  *ੈ✩‧₊˚
+
 
  <br>
  
