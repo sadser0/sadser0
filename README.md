@@ -1,7 +1,7 @@
 <div align="center"> 
                                                        
 
-*ੈ✩‧₊˚ *kilobytes, baby, must be in the thousands*  *ੈ✩‧₊˚
+ *kilobytes, baby, must be in the thousands* ✧˖*°࿐ 
 
 <img width="20%" src="https://i.postimg.cc/k4tqrDNy/motom.png"> 
 
