@@ -3,7 +3,7 @@
 
 *ੈ✩‧₊˚ *kilobytes, baby, must be in the thousands*  *ੈ✩‧₊˚
 
-<img width="30%" src="https://i.postimg.cc/k4tqrDNy/motom.png"> 
+<img width="20%" src="https://i.postimg.cc/k4tqrDNy/motom.png"> 
 
 
 
