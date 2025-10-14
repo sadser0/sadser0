@@ -16,7 +16,7 @@ afk pls whisp + only c+h if alone
   ˚ʚ♡ɞ˚
 <br>
 <br>
-─ ཐི <a href="https://sadsero.atabook.org/">rentry</a>  ཋྀ ─
+─ ཐི <a href="https://rentry.co/sadsero">rentry</a>  ཋྀ ─
 
 <br>![](https://komarev.com/ghpvc/?username=sadser0&label=visitors+++&color=2d2f59)
  
