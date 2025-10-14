@@ -1,6 +1,6 @@
 <div align="center"> 
                                                        
-♱     *kilobytes, baby, must be in the thousands* 𓂃 ࣪˖ ִֶ♱ ྀིྀ
+♱     *stray bullet - from the barrel of love* 𓂃 ࣪˖ ִֶ♱ ྀིྀ
 
 <img width="20%" src="https://i.postimg.cc/k4tqrDNy/motom.png">      
 
