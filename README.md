@@ -9,7 +9,8 @@
  <br>
  
 20|UK  
-afk pls whisp + only c+h if alone 
+afk pls whisp + only c+h if alone +
+pls read sp before int
 
   i love my polycule very platonically   
 
