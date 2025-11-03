@@ -1,8 +1,8 @@
 <div align="center"> 
                                                        
-♱     *stray bullet - from the barrel of love* 𓂃 ࣪˖ ִֶ♱ ྀིྀ
+♱     *i am a moth who just wants to share your light* 𓂃 ࣪˖ ִֶ♱ ྀིྀ
 
-<img width="20%" src="https://i.postimg.cc/k4tqrDNy/motom.png">      
+<img width="35%" src="https://i.postimg.cc/VLb6Qr1V/IMG-1899.jpg">      
 
 <br>
 ⋅⋆ ───‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙─── ⋆⋅
@@ -12,7 +12,7 @@
 afk pls whisp + only c+h if alone +
 pls read sp before int
 
-  i love my polycule very platonically   
+  i wanna touch my oomfs  
 
   ˚ʚ♡ɞ˚
 <br>
