@@ -8,7 +8,8 @@
 ⋅⋆ ───‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙─── ⋆⋅
  <br>
  
-20|UK  
+♟️
+
 afk pls whisp + only c+h if alone +
 pls read sp before int
 
