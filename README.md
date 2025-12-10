@@ -10,7 +10,7 @@
  
 ♟️
 
-afk pls whisp + only c+h if alone +
+afk pls whisp + c+h if alone +
 pls read sp before int
 
   i wanna touch my oomfs  
