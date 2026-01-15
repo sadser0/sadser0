@@ -2,7 +2,7 @@
                                                        
 ♱     *i am a moth who just wants to share your light* 𓂃 ࣪˖ ִֶ♱ ྀིྀ
 
-<img width="35%" src="https://i.postimg.cc/VLb6Qr1V/IMG-1899.jpg">      
+<img width="45%" src="https://i.postimg.cc/BbkJTscj/serographic.png">      
 
 <br>
 ⋅⋆ ───‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙─── ⋆⋅
