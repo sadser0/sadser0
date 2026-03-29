@@ -13,7 +13,7 @@
 afk pls whisp + c+h if alone +
 pls read sp before int
 
-  i wanna touch my oomfs  
+i love polygoon 
 
   ˚ʚ♡ɞ˚
 <br>
