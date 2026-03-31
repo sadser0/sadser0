@@ -12,10 +12,6 @@
 
 afk pls whisp + c+h if alone +
 pls read sp before int
-
-polygooners rise up
-
-  ˚ʚ♡ɞ˚
 <br>
 <br>
 ─ ཐི <a href="https://rentry.co/myeunsung">rentry</a>  ཋྀ ─
