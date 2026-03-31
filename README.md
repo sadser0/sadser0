@@ -13,7 +13,7 @@
 afk pls whisp + c+h if alone +
 pls read sp before int
 
-i love polygoon 
+polygooners rise up
 
   ˚ʚ♡ɞ˚
 <br>
