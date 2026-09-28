@@ -11,7 +11,7 @@
  <br>
 
 <br>
-afk whisp + c+h if oomf + read sp before int
+afk whisp + c+h oomf + read sp before int
 
 <br>
 <br>
