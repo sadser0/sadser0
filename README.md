@@ -15,8 +15,8 @@ afk whisp + c+h oomf + read sp before int
 
 <br>
 <br>
-⸝⸝× <a href="https://rentry.co/myeunsung">rentry</a> ×⸝⸝ <a href="https://sadsero.atabook.org/">ata</a> ⸝⸝×
-<a href="https://motopurin.straw.page/">strawpage</a> ×⸝⸝
+ ×⸝⸝ <a href="https://sadsero.atabook.org/">ata</a> ×
+<a href="https://motopurin.straw.page/">strawpage</a> ⸝⸝×
 
  
  
